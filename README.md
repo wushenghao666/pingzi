@@ -20,4 +20,29 @@
 
 11你是我的 main 分支，我是你的 HEAD 指针，从此永不分离。
 
-12
+12坝坝宴吃九大碗，我只尝你这一道菜。
+
+13我愿做你一生的球童，让你可以专注地打出你的精彩人生
+
+14 遇见你之前，我像是单打；遇见你之后，双打才是生命完整的模样
+
+15 我们就像网球和拍线，相互缠绕，奏出最动听的韵律
+
+16 We played Spiritfarer, and you are my Spiritfuller
+
+17 你就像都江堰你爸买的耙耙柑，明甜！
+
+18 We might burn the kitchen in Overcooked, but we'll never burn out.
+
+19 贴贴吗，我说贴贴吗，姐姐我说贴贴吗，贴贴贴贴贴贴
+
+20 如果你是拍柄，我就是你的手胶，缠你缠你缠你
+
+21 黄金会涨会跌，但爱你这件事，我从不设止损点。
+
+22 你一笑，比金价飙升更让我心跳失控。
+
+23 金价会暴跌，而我对你的爱，只会螺旋上升。
+
+24 Te quiero mucho, eres lo más importante para mí.
+
